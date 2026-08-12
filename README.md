@@ -7,3 +7,4 @@ Paboritong libangan: Reading, drawing, listening to music, and playing instrumen
 Pangarap sa buhay: To be successful.
 
 1stQuarter/ctskillsLithiumLighid.md.
+https://docs.google.com/document/d/1VOvq-wr0WGaEaQ7N4-3W-2hb984gl_QhXkzoobxU7TE/edit?usp=drivesdk
